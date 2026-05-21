@@ -8,4 +8,3 @@ I am a **Software Developer** and **UI/UX Designer**. I am passionate about brid
 
 #### 📫 Let's Connect!
 - **LinkedIn:** [Masukkan Link Profil LinkedIn Kamu di sini]
-- **Email:** [Masukkan Email Kamu di sini]
